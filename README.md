@@ -1,0 +1,2 @@
+# ideal-computing-machine
+1. nice day! Hope that's okay. Thank you for the attention of our company. We are a company that has been manufacturing all kinds of jackets for over 20 years, at the same time we also provide professional customs services and we are the six star supplier of Global Source. The quantity you need. Do you have WhatsApp? Then we can easily contact. My WhatsApp number is 03446825963. Please tell me the above mentioned details.
